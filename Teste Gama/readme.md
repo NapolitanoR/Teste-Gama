@@ -1,0 +1,1 @@
+Acho que o curso está sendo muito interessante, como um leigo em programação sinto alguma dificuldade porém vendo as aulas e orientações tenho conseguido seguir com as tarefas e entender o que é necessário fazer
